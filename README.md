@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **React and Node**
 
-- 🌱 I’m currently learning **Next.JS**
+- 🌱 I’m currently learning **Blockchain**
 
 - 📫 How to reach me **jrsaini2090@gmail.com**
 

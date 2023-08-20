@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **jrsaini2090@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1D8J7mugv-N8_FjUYgavUCZtP6pBgDkqI/view?usp=sharing](https://drive.google.com/file/d/1D8J7mugv-N8_FjUYgavUCZtP6pBgDkqI/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1lcODzpwvhB-40hjKJ2s5sdSR58d5-Pbn/view?usp=sharing](https://drive.google.com/file/d/1lcODzpwvhB-40hjKJ2s5sdSR58d5-Pbn/view?usp=sharing)
 
 - ⚡ Fun fact **I have deadlifted 115 kg**
 
